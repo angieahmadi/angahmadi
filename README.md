@@ -1,2 +1,2 @@
 # angahmadi
-Personal website of ang ahmadi
+Personal website of angie ahmadi
